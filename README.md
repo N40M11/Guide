@@ -5,3 +5,4 @@ I don’t know how to start but I’m naomii , my fandoms are: ch (statehumans t
 Feel free to friend me or sit next to me , 80% percent of the time I will likely not talk I get distracted easily and go offtab or just have nothing to really talk about so sorry in advance , Dni if 11 and younger. I’m online most of the time 11 am to 4-5 am (or just late at night depends) CST time zone
 
 I might update this in the future but that’s it thanks for reading and have a wonderful day
+I may be dry and distant at some points plese excuse my absence I will try to int as much as I can😿😿
